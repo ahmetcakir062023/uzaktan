@@ -1,1 +1,1 @@
-# uzaktan
+# uzaktan değiştirdim.
